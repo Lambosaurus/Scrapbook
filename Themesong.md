@@ -14,7 +14,7 @@ Barbados
 * [Super Gore Nest](https://www.youtube.com/watch?v=8nZyemRSN-A)
 
 Sampson:
-* [Hell March](https://open.spotify.com/track/5szUtz8iin8bKHiMF2saYa?si=3ab0a0e4e1b84485)
+* [Glorious Tradition](https://open.spotify.com/track/0lzW3pU4B6RybL6q5cPELF?si=f51d2a1702e340c1)
 * [Death Throes of the Terrorsquid](https://open.spotify.com/track/4Fx0n3Y36O875SrDW9c279?si=5887763d4b4340ea)
 * [Maximillian Von Spee](https://open.spotify.com/track/5sM4oquLH85L2GSsyeY0an?si=838e1bea48f84d41)
 
