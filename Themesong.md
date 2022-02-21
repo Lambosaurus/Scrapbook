@@ -1,11 +1,3 @@
-Niza: Three wishes / Grabenlieder / Spartacus
-Bane: Elegy for the rings / The River / Friends in low places
-Barbados: Der letzte Flug / Row Row / BFG Division
-Sampson: Hell March / Death of the Terrorsquid / Maximillian Von Spee
-Azemorn: Now I am become Death / Mother I'm here / Database
-Jun: Build that wall / Megalobox / Gleaming copper
-
-
 Niza:
 * [Three Wishes](https://open.spotify.com/track/4MpXaXYhkGMw4gt3ZlS7sQ?si=7be76ff5de484fad)
 * [Grabenlieder](https://open.spotify.com/track/5ljzbADLpCEqkQmZwTtIEz?si=92163295b2734aaf)
