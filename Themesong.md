@@ -11,7 +11,7 @@ Bane:
 Barbados
 * [The Yankee Division March](https://open.spotify.com/album/71iMpXfFf46g6QL23gNUil?si=BHt_swKjRQKeIs5qnf7HLA)
 * [Row Row](https://open.spotify.com/track/3RbiWVIynzvw542GqAIvD2?si=33f294d4cd634560)
-* [Super Gore Nest](https://www.youtube.com/watch?v=8nZyemRSN-A)
+* [Wire](https://www.youtube.com/watch?v=kGj_HkKhhSE)
 
 Sampson:
 * [Glorious Tradition](https://open.spotify.com/track/0lzW3pU4B6RybL6q5cPELF?si=f51d2a1702e340c1)
